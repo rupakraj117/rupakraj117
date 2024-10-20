@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RUPAKKOTHI
+- 👀 I’m interested in Learning New things Which Are not known To me.
+- 🌱 I’m currently learning C
+- 💞️ I’m looking to collaborate on Coding Learning Platforms for better coding knowledges
+- 📫 How to reach me 
